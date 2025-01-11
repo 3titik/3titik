@@ -9,3 +9,6 @@ https://saromben.com
 https://portal-indonesia.com
 https://cakra.or.id
 https://portalsitubondo.com
+https://wartapantura.com
+https://wartakotamu.com
+https://populer.co.id
