@@ -12,3 +12,5 @@ https://portalsitubondo.com
 https://wartapantura.com
 https://wartakotamu.com
 https://populer.co.id
+https://portalterbaru.com
+https://portalnarasi.com
